@@ -1,4 +1,4 @@
-# Bluerose Packaging | High-Performance Protective Packaging Foam Sheets for Industrial & Shipping Applications
+# Bluerose Packaging | High-Performance Protective Packaging Foam Sheets for Shipping, Storage & Product Safety
 
 Modern packaging operations require materials that offer both protection and efficiency across different use cases. Protective packaging foam sheets are designed to deliver consistent cushioning, surface protection, and durability for a wide range of products. From high density foam sheets to flexible cushioning foam sheets, these materials help businesses reduce damage risks and improve packaging reliability.
 
